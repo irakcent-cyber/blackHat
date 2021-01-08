@@ -1,2 +1,2 @@
 # blackHat
-For hackers with good intentions
+For Crackers not Hackers.
